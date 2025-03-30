@@ -1,7 +1,7 @@
 　　  　  　[𝙍𝙚𝙣𝙩𝙧𝙮](https://rentry.co/owll)　   　  [𝙎𝙩𝙧𝙖𝙬 𝙥𝙖𝙜𝙚](https://expensv.straw.page/)　   　  [𝙀𝙣 𝙥𝙧𝙣](https://en.pronouns.page/@cllasiccigarrate)
 
 <p align="center">
-    <img width="300" src="https://64.media.tumblr.com/9b724520f7eee71c4ae2ce99cb27ca9d/89bf26c2ae25221c-34/s640x960/140b5eac67d44a3f66fab2256469be7ab43048d3.gifv">
+    <img width="380" src="https://64.media.tumblr.com/70a6e9e5b3d7486c07be291138b9ad87/aea75c2d68369013-5a/s1280x1920/e1499d67a5541fd85e9822db3f96a89bc4912896.pnj">
 </p>
 
 
