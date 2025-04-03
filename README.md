@@ -16,7 +16,7 @@
 <sup>𝙒𝙚 𝙢𝙪𝙨𝙩 𝙙𝙤 𝙬𝙝𝙖𝙩𝙚𝙫𝙚𝙧 𝙞𝙩 𝙩𝙖𝙠𝙚𝙨 𝙩𝙤 𝙨𝙪𝙧𝙫𝙞𝙫𝙚...</sup> 
 </p> 
 <p align="center">
-______________________________________
+__________________________________________
 </p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vqck2xnl327xecntooe7ptxtrq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vqck2xnl327xecntooe7ptxtrq&redirect=true)
