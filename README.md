@@ -4,7 +4,7 @@
 [<sup>𝙀𝙉.𝙋𝙍𝙉</sup>](https://en.pronouns.page/@cllasiccigarrate)
 
 <p align="center">
-  <img width="200" src="https://64.media.tumblr.com/c7b4f4f4d1c369b6447d265610628953/ee8be58f7956c31b-34/s1280x1920/c124078665c447fd4276aac9f67bb6ca65c0783a.pnj">
+  <img width="90" src="https://64.media.tumblr.com/5d67e9981ee902faa3a9a404dbcfe3b2/354d99c6c057648a-61/s540x810/ae2033b63dcd5d9a9edbf38c5a90ae3034e2c02e.gifv">
 </p>
 
 <p align="center">
