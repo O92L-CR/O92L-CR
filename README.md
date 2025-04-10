@@ -4,6 +4,10 @@
 [<sup>𝙀𝙉.𝙋𝙍𝙉</sup>](https://en.pronouns.page/@cllasiccigarrate)
 
 <p align="center">
+  <img width="200" src="https://64.media.tumblr.com/c7b4f4f4d1c369b6447d265610628953/ee8be58f7956c31b-34/s1280x1920/c124078665c447fd4276aac9f67bb6ca65c0783a.pnj">
+</p>
+
+<p align="center">
 <sup>𝘆𝗼𝘂'𝗿𝗲 𝗻𝗼𝘁 𝗳𝗶𝗻𝗶𝘀𝗵𝗲𝗱 𝗮𝗿𝗲 𝘆𝗼𝘂? 𝗰𝗼𝗺𝗲 𝗼𝗻, 𝘁𝗿𝘆 𝗵𝗮𝗿𝗱𝗲𝗿.</sup>
 </p>
 
