@@ -3,6 +3,10 @@
 [<sup>𝙎𝙏𝙍𝘼𝙒𝙋𝘼𝙂𝙀</sup>](https://expensv.straw.page/) 　   　
 [<sup>𝙀𝙉.𝙋𝙍𝙉</sup>](https://en.pronouns.page/@cllasiccigarrate)
 
+<p align="center">
+  <img width="340"
+src="https://i.imgur.com/JSYDjTx.gif">
+</p>
 
 <p align="center">
 <sup>𝘆𝗼𝘂'𝗿𝗲 𝗻𝗼𝘁 𝗳𝗶𝗻𝗶𝘀𝗵𝗲𝗱 𝗮𝗿𝗲 𝘆𝗼𝘂? 𝗰𝗼𝗺𝗲 𝗼𝗻, 𝘁𝗿𝘆 𝗵𝗮𝗿𝗱𝗲𝗿.</sup>
