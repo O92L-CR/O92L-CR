@@ -4,7 +4,7 @@
    
 [<sup>𝙍𝙀𝙉𝙏𝙍𝙔</sup>](https://rentry.co/extaused)  　   　
 [<sup>𝙎𝙏𝙍𝘼𝙒𝙋𝘼𝙂𝙀</sup>](https://expensv.straw.page/) 　   　
-[<sup>𝘼𝙏𝘼𝘽𝙊𝙊𝙆</sup>](https://en.pronouns.page/@cllasiccigarrat)
+[<sup>𝘼𝙏𝘼𝘽𝙊𝙊𝙆</sup>](https://spiritbox.atabook.org/)
 
 <sup>═════════╣ ♢ ╠═════════</sup>
 
